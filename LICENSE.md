@@ -1,4 +1,4 @@
-# 
+# instant Adobe Photoshop para PC plugins é o melhor Adobe Photoshop para PC plugins com painéis de estilo e controle de câmera. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
